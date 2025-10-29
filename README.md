@@ -4,8 +4,9 @@
  3.I am not achieving my goals 
  I am being talk always
  
- 
+wastefull day  
 This is the plan 
+
 
 
 
