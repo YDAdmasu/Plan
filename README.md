@@ -3,9 +3,11 @@
  2.high hopes to overcome the obstacles
  3.I am not achieving my goals 
  I am being talk always
+ please fix the streak 
  
 wastefull day  
 This is the plan 
+
 
 
 
